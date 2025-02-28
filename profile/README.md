@@ -1,5 +1,5 @@
 # Graiphics Review: Discover the Truth Behind This AI Image Tool
-
+![Graiphics Review](https://hudareview.com/wp-content/uploads/2022/09/Graiphics-Review.png)
 *Struggling to create stunning graphics fast? This Graiphics review reveals if it’s worth your time and money—uncover features, pros, and cons now!*
 
 ## Table of Contents
